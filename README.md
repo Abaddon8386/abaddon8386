@@ -19,7 +19,5 @@
 ---
 [![](https://visitcount.itsvg.in/api?id=abaddon8386&icon=0&color=0)](https://visitcount.itsvg.in)
 
-Conatact
-
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
